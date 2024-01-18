@@ -114,3 +114,18 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Gluten Free Toast & Hard-Boiled Eggs
+Ingredients:
+- 2 pieces of gluten free bread
+- 2 eggs
+
+Instructions:
+1. Boil water in a pot
+2. Once water is boiling, add 2 eggs in their shell
+3. Leave in simmering water for 8 minutes
+4. Put both pieces of bread into the toaster until it is toasted to your liking
+5. Remove eggs and de-shell
+6. Plate eggs with toast and enjoy. 
+
+
