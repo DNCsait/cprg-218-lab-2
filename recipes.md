@@ -91,6 +91,17 @@ Instructions:
 5. Toast hamburger buns on the grill.
 6. Assemble sandwiches with chicken, lettuce, tomato, and mayonnaise.
 
+## Soups
+### Tomato Soup
+
+Ingredients:
+- 1 can of tomato soup
+
+Instructions:
+1. Pour can of tomato soup in a microwave-safe bowl.
+2. Microwave covered bowl for 3 minutes.
+3. Grab a spoon and eat it. 
+
 ## Desserts
 ### Chocolate Chip Cookies
 
