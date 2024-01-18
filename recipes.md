@@ -80,6 +80,7 @@ Ingredients:
 - Lettuce
 - Tomato
 - Mayonnaise
+- 2 pieces of gluten free bread
 
 Instructions:
 1. Preheat grill to medium-high heat.
