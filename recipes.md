@@ -37,6 +37,7 @@ Ingredients:
 - 1 clove garlic, minced
 - 2 tablespoons olive oil
 - 2 tablespoons balsamic vinegar
+- 6 cups pineapple
 - Salt and pepper to taste
 
 Instructions:
